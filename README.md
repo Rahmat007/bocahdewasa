@@ -1,0 +1,2 @@
+# bocahdewasa
+bebas berfikir
